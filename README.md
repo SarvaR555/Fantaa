@@ -1,0 +1,2 @@
+# Fantaa
+Fanta ichimligi
